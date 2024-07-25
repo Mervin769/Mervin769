@@ -1,4 +1,4 @@
-### Hi there 👋, I'm [V MERVIN LINCOLN]!
+### Hi there 👋, I'm V MERVIN LINCOLN
 
 🎓 I'm a final year Computer Science student at Andhra University, passionate about leveraging technology to solve real-world problems.
 
